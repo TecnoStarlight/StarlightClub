@@ -1,4 +1,4 @@
-# StarlightClub_Rules
+# Starlight Club - Basic Rules
 Starlight World brings the most to the community by providing a place to chat, post cringe, share your artwork, and more, and it is important to follow these rules.
 
 ## Never post NSFW content on this server.
